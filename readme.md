@@ -1,8 +1,5 @@
 hello shajaha...
 
-how are you..
-
-
-hello sameer....
+how are you.
 
 hsbdjsag
